@@ -1,5 +1,4 @@
-meu nome é kauanny campos e eu sou feliz com o que eu tenho
-meu nome é matheus e sou feliz pela kauanny 
-matteus e eu jogo bola 
-meu nome é pedro e eu não gosto de estudar 
-bom dia !...................
+meu nome é matheus scopel junto com o talles e juntos abrimos uma barbearia cortamos cabelos fazemos umnhas e enfim, um salão de beleza
+preço dos cortes de cabelo masculino 30 
+Cortes femininos 50, unhas do pé e da mão 30
+Salão localizado no batel
